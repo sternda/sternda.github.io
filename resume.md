@@ -35,7 +35,7 @@ My Experiences in food service and retail make me an ideal candidate for this po
 1. Managed recycling bins 
 1. Operated POS system at registers when necessary.
 
-###Compare and Contrast
+##Compare and Contrast
 
 Jimmy Johns | First Alternative
 ------------|------------------
