@@ -19,9 +19,9 @@ My Experiences in food service and retail make me an ideal candidate for this po
 
 **Delivery Driver** (June 2015 - September 2016)
 
-1. Delivered sandwiches with **speed** and **accuracy**
+1. Delivered sandwiches with **speed** and **accuracy** :red_car:
 1. Cleaned the restaurant
-1. Carefully crafted sandwiches to patron's orders :sandwich:
+1. Carefully crafted sandwiches to patron's orders 
 
 ## First Alternative Co-op
 >*Local grocery store selling fresh, organic, all natural foods*
